@@ -5,5 +5,5 @@
 ![crush_userbox_by_userboxesgalore_dbh68i5-fullview](https://github.com/user-attachments/assets/d0220267-c4d7-4bf9-916e-c7fd8b1c5313)
 ![trans_userbox_by_userboxesgalore_dbh6g6p-fullview](https://github.com/user-attachments/assets/4e9f599a-2bb2-494c-b32e-ad2146759d13)
 ![weed_userbox_by_userboxesgalore_dbh6g8a-fullview](https://github.com/user-attachments/assets/07c74f9a-5f26-4850-bd6c-0bc26e2c6224)
-![tumblr_ohr2yl7zfw1vitgceo1_1280](https://github.com/user-attachments/assets/51204429-ac62-4886-902a-79769970f6c0)
+![Screenshot_20250104-044250~2](https://github.com/user-attachments/assets/056c40c7-599f-41f2-a2a4-be1d8d01730d)
 
