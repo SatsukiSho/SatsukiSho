@@ -1,4 +1,4 @@
-![12224084_eb3f0](https://github.com/user-attachments/assets/73bc00f9-1f08-4775-aaeb-220a39c60c8b)
+![tumblr_6b19810737ce4609914b8c823542264c_8d6333ad_1280](https://github.com/user-attachments/assets/3dad6ad5-186f-4435-b343-e76af23b1f23)
 
 so um some info! there's only 3 alters me(towa), the host, and mizuki. i tend to front the most!!
 
