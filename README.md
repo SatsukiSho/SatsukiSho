@@ -1,6 +1,6 @@
 ![tumblr_6b19810737ce4609914b8c823542264c_8d6333ad_1280](https://github.com/user-attachments/assets/3dad6ad5-186f-4435-b343-e76af23b1f23)
 
-so um some info! there's only 3 alters me(towa), the host, and mizuki. i tend to front the most!!
+so um some info! i really do NOT interact first but um if you have the confidence too im usually not busy!
 
 ![skullgirls_stamp_by_the_orangeninja_d7ubtsl-fullview](https://github.com/user-attachments/assets/0ac9746d-fee8-48e9-bd54-bff383c45e36)
 ![dbunu9v-685d9e75-58c0-4f95-a665-f169409a94f8](https://github.com/user-attachments/assets/c8ce04d9-087a-4e31-ba64-3eac9ca84bfc)
