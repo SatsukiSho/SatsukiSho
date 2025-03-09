@@ -1,4 +1,4 @@
-![Towa and Murase Taku](https://github.com/user-attachments/assets/baf9cac8-9e2c-49d1-b276-ef511496438d)
+![E_0VKjtUYAcW6Eg](https://github.com/user-attachments/assets/a22a6f90-178e-4454-bd52-b054664ea3a9)
 
 so um some info! i really do NOT interact first but um if you have the confidence too im usually not busy!
 
