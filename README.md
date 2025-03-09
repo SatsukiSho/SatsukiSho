@@ -1,4 +1,4 @@
-![tumblr_6b19810737ce4609914b8c823542264c_8d6333ad_1280](https://github.com/user-attachments/assets/3dad6ad5-186f-4435-b343-e76af23b1f23)
+![Towa and Murase Taku](https://github.com/user-attachments/assets/baf9cac8-9e2c-49d1-b276-ef511496438d)
 
 so um some info! i really do NOT interact first but um if you have the confidence too im usually not busy!
 
