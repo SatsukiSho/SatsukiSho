@@ -1,6 +1,6 @@
-![E_0VKjtUYAcW6Eg](https://github.com/user-attachments/assets/a22a6f90-178e-4454-bd52-b054664ea3a9)
+![its-all-over-the-place-help-v0-tn59pjqd529b1](https://github.com/user-attachments/assets/db818e35-63a8-4e4c-b955-ca0221791383)
 
-so um some info! i really do NOT interact first but um if you have the confidence too im usually not busy!
+so um some info! i really do NOT interact first but um if you have the confidence too im usually not busy! plus i think our host is not going to make a github for themselves so uhh technically its me and them ^^
 
 ![skullgirls_stamp_by_the_orangeninja_d7ubtsl-fullview](https://github.com/user-attachments/assets/0ac9746d-fee8-48e9-bd54-bff383c45e36)
 ![dbunu9v-685d9e75-58c0-4f95-a665-f169409a94f8](https://github.com/user-attachments/assets/c8ce04d9-087a-4e31-ba64-3eac9ca84bfc)
