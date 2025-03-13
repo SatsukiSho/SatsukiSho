@@ -1,4 +1,4 @@
-![its-all-over-the-place-help-v0-tn59pjqd529b1](https://github.com/user-attachments/assets/db818e35-63a8-4e4c-b955-ca0221791383)
+![F1BIBQ6WwAQx3FA](https://github.com/user-attachments/assets/43526b81-37f6-4161-8aaf-2d833245f199)
 
 so um some info! i really do NOT interact first but um if you have the confidence too im usually not busy! plus i think our host is not going to make a github for themselves so uhh technically its me and them ^^
 
