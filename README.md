@@ -1,5 +1,7 @@
 ![d6hhaf7tju4b1](https://github.com/user-attachments/assets/208e9e3b-976a-48e7-adb2-f1949d5a8cd3)
 
+⬆️ i wanna breed him btw 
+
 so um some info! i really do NOT interact first but um if you have the confidence too im usually not busy! 
 
 ![skullgirls_stamp_by_the_orangeninja_d7ubtsl-fullview](https://github.com/user-attachments/assets/0ac9746d-fee8-48e9-bd54-bff383c45e36)
