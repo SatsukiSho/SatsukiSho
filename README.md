@@ -1,6 +1,6 @@
-![F1BIBQ6WwAQx3FA](https://github.com/user-attachments/assets/43526b81-37f6-4161-8aaf-2d833245f199)
+![images](https://github.com/user-attachments/assets/962fe5e6-df60-462a-bfe4-c731b60a0223)
 
-so um some info! i really do NOT interact first but um if you have the confidence too im usually not busy! plus i think our host is not going to make a github for themselves so uhh technically its me and them ^^
+so um some info! i really do NOT interact first but um if you have the confidence too im usually not busy! 
 
 ![skullgirls_stamp_by_the_orangeninja_d7ubtsl-fullview](https://github.com/user-attachments/assets/0ac9746d-fee8-48e9-bd54-bff383c45e36)
 ![dbunu9v-685d9e75-58c0-4f95-a665-f169409a94f8](https://github.com/user-attachments/assets/c8ce04d9-087a-4e31-ba64-3eac9ca84bfc)
