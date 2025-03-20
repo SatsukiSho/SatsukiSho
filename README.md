@@ -1,4 +1,4 @@
-![images](https://github.com/user-attachments/assets/962fe5e6-df60-462a-bfe4-c731b60a0223)
+![d6hhaf7tju4b1](https://github.com/user-attachments/assets/208e9e3b-976a-48e7-adb2-f1949d5a8cd3)
 
 so um some info! i really do NOT interact first but um if you have the confidence too im usually not busy! 
 
