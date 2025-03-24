@@ -1,4 +1,4 @@
-![d6hhaf7tju4b1](https://github.com/user-attachments/assets/208e9e3b-976a-48e7-adb2-f1949d5a8cd3)
+![vgb2hgtqvyed1](https://github.com/user-attachments/assets/8acdeb95-5adb-4ef1-80f8-c4bbe831ecda)
 
 ⬆️ i wanna breed him btw 
 
