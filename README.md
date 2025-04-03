@@ -1,6 +1,6 @@
-![vgb2hgtqvyed1](https://github.com/user-attachments/assets/8acdeb95-5adb-4ef1-80f8-c4bbe831ecda)
+![12407773_911f0](https://github.com/user-attachments/assets/be1700fe-c158-4e8f-9616-c7e6421d0027)
 
-⬆️ i wanna breed him btw 
+⬆️ i heavy kin him btw js thought u should know (⁠ ⁠╹⁠▽⁠╹⁠ ⁠)
 
 so um some info! i really do NOT interact first but um if you have the confidence too im usually not busy! 
 
