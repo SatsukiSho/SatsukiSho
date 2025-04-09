@@ -1,6 +1,6 @@
-![12407773_911f0](https://github.com/user-attachments/assets/be1700fe-c158-4e8f-9616-c7e6421d0027)
+![tumblr_9d76ac387a5a71bb29fb2bb4f52cc5f9_162981c9_1280](https://github.com/user-attachments/assets/64164d1c-027a-47d9-b914-c17030281da3)
 
-⬆️ i heavy kin him btw js thought u should know (⁠ ⁠╹⁠▽⁠╹⁠ ⁠)
+⬆️ i heavily kin him btw js thought u should know (⁠ ⁠╹⁠▽⁠╹⁠ ⁠)
 
 so um some info! i really do NOT interact first but um if you have the confidence too im usually not busy! 
 
