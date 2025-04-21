@@ -1,6 +1,6 @@
 ![1da34f5b0e57a549f2fcc687b45cbe87](https://github.com/user-attachments/assets/87c9856b-b354-4a43-a6ea-38f42f1eff30)
 
-⬆️ i heavily kin him and hawks from mha btw js thought u should know (⁠ ⁠╹⁠▽⁠╹⁠ ⁠)
+i heavily kin kamina and hawks from mha btw js thought u should know (⁠ ⁠╹⁠▽⁠╹⁠ ⁠)
 
 so um some info! i really do NOT interact first but um if you have the confidence too im usually not busy! 
 
