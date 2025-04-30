@@ -1,9 +1,6 @@
-![tumblr_dd3be216f638c859610646ff85d670e9_91ecebe2_400](https://github.com/user-attachments/assets/287f8b88-d093-4d0c-984f-485b0b2f46ef)
-![tumblr_360ef98aa80e8b0820da5ff9ea6fd541_e4974391_400](https://github.com/user-attachments/assets/cb3dae2e-a6f4-491a-9389-4966c5c489b6)
-![tumblr_62642aeca82f4ca73b423f076dcefa4e_ebaac88a_400](https://github.com/user-attachments/assets/33102732-3aa5-473b-ad89-544c4b06d30e)
+<img src="https://static.tvtropes.org/pmwiki/pub/images/casino_cups.jpg" alt="Casino Cups (Blog) - TV Tropes"/>
 
-
-i heavily kin stocking and kamina btw js thought u should know (⁠ ⁠╹⁠▽⁠╹⁠ ⁠)
+i heavily kin cuphead and stocking btw js thought u should know (⁠ ⁠╹⁠▽⁠╹⁠ ⁠)
 
 so um some info! i really do NOT interact first but um if you have the confidence too im usually not busy! 
 
