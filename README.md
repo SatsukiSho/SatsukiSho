@@ -1,6 +1,6 @@
-<img src="https://static.tvtropes.org/pmwiki/pub/images/casino_cups.jpg" alt="Casino Cups (Blog) - TV Tropes"/>
+![tumblr_static_89hh5ib8bqkogssok4o0c4wow_2048_v2](https://github.com/user-attachments/assets/dc8473dd-4f75-4105-90c7-0db23274cedf)
 
-i heavily kin cuphead and stocking btw js thought u should know (⁠ ⁠╹⁠▽⁠╹⁠ ⁠)
+i heavily kin cuphead, bendy, and stocking btw js thought u should know (⁠ ⁠╹⁠▽⁠╹⁠ ⁠)
 
 so um some info! i really do NOT interact first but um if you have the confidence too im usually not busy! 
 
