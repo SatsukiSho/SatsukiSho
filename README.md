@@ -1,6 +1,6 @@
-![tumblr_static_89hh5ib8bqkogssok4o0c4wow_2048_v2](https://github.com/user-attachments/assets/dc8473dd-4f75-4105-90c7-0db23274cedf)
+![Screenshot_20250510-044153](https://github.com/user-attachments/assets/9270e8a5-1cd3-476d-877b-4adf1135fa87)
 
-i heavily kin cuphead, bendy, and stocking btw js thought u should know (⁠ ⁠╹⁠▽⁠╹⁠ ⁠)
+i heavily kin bendy and have for years if its not obvious  (⁠ ⁠╹⁠▽⁠╹⁠ ⁠)
 
 so um some info! i really do NOT interact first but um if you have the confidence too im usually not busy! 
 
