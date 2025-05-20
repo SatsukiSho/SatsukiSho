@@ -6,6 +6,8 @@ so um some info! i really do NOT interact first but um if you have the confidenc
 
 ![tumblr_pnm2lw90j11uoq6kio1_1280](https://github.com/user-attachments/assets/7771ff44-5d25-4b9a-a9fa-c3bc57dd56ad)
 
+![Bro](https://github.com/user-attachments/assets/9855386e-d356-4e80-9b9e-904f6f472a81)
+
 ![0036-fire](https://github.com/user-attachments/assets/11ea711f-7e08-4033-b464-4c07b3e0bed0)
 ![0129-splatoon3](https://github.com/user-attachments/assets/30f95f65-ad2e-4b46-ba0b-39e496dd64fd)
 ![0097-purple](https://github.com/user-attachments/assets/9d1c975c-f12e-4b7e-89a9-853c8dcde837)
