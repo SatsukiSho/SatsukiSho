@@ -4,7 +4,7 @@
 
 so um some info! i really do NOT interact first but um if you have the confidence too im usually not busy! 
 
-![tumblr_pnm2lw90j11uoq6kio1_1280](https://github.com/user-attachments/assets/7771ff44-5d25-4b9a-a9fa-c3bc57dd56ad)
+![11300253_d2e68](https://github.com/user-attachments/assets/4b49dd39-30f8-4075-991c-4d973abda87e)
 
 ![Bro](https://github.com/user-attachments/assets/9855386e-d356-4e80-9b9e-904f6f472a81)
 
