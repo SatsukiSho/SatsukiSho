@@ -1,4 +1,4 @@
-![Screenshot_20250510-044153](https://github.com/user-attachments/assets/9270e8a5-1cd3-476d-877b-4adf1135fa87)
+![tumblr_ly4193cryw1qcfqo5o1_500](https://github.com/user-attachments/assets/5298f3e2-3e7e-4243-ba97-7517f7688249)
 
  rare batim and fullmetal alchemist fan. i also like a few select games in general currently doing a fresh cuphead save run
 
