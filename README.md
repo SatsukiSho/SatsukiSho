@@ -1,6 +1,6 @@
 ![Screenshot_20250510-044153](https://github.com/user-attachments/assets/9270e8a5-1cd3-476d-877b-4adf1135fa87)
 
- rare bendy and the ink machine and splatoon fan. i also like a few select games in general currently doing a fresh cuphead save run
+ rare batim and fullmetal alchemist fan. i also like a few select games in general currently doing a fresh cuphead save run
 
 so um some info! i really do NOT interact first but um if you have the confidence too im usually not busy! 
 
