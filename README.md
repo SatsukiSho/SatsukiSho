@@ -1,6 +1,6 @@
 ![tumblr_ly4193cryw1qcfqo5o1_500](https://github.com/user-attachments/assets/5298f3e2-3e7e-4243-ba97-7517f7688249)
 
- rare batim and fullmetal alchemist fan. i also like a few select games in general currently doing a fresh cuphead save run
+ rare batim and fullmetal alchemist fan. i also like a few select games in general(yes i like nitro chiral games too shut up)
 
 so um some info! i really do NOT interact first but um if you have the confidence too im usually not busy! 
 
