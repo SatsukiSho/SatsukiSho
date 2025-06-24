@@ -1,6 +1,6 @@
 ![Takeru-Sasazuka](https://github.com/user-attachments/assets/ad032876-f3e6-422e-9fb6-ce4243c8fcc7)
 
- collar x malice and fullmetal alchemist fan. i also like a few select games in general(yes i like nitro chiral games too shut up)
+ collar x malice, punch punch forever(nono kin) and fullmetal alchemist fan. i also like a few select games in general(yes i like nitro chiral games too shut up)
 
 so um some info! i really do NOT interact first but um if you have the confidence too im usually not busy! 
 
