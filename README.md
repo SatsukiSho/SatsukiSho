@@ -1,7 +1,7 @@
 ![46174f07bb4c061254eca05cc9563a21](https://github.com/user-attachments/assets/3387321c-51b8-4476-8f32-e60325d67a4d)
 
 
- collar x malice, punch punch forever(nono kin) and fullmetal alchemist fan. i also like a few select games in general(yes i like nitro chiral games too shut up)
+hyperdimensional neptunia, collar x malice, punch punch forever(nono kin) and fullmetal alchemist fan. i also like a few select games in general(yes i like nitro chiral games too shut up)
 
 so um some info! i/we really do NOT interact first but um if you have the confidence too im/we're usually not busy! 
 
