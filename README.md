@@ -1,16 +1,26 @@
-![Takeru-Sasazuka](https://github.com/user-attachments/assets/ad032876-f3e6-422e-9fb6-ce4243c8fcc7)
+![46174f07bb4c061254eca05cc9563a21](https://github.com/user-attachments/assets/3387321c-51b8-4476-8f32-e60325d67a4d)
+
 
  collar x malice, punch punch forever(nono kin) and fullmetal alchemist fan. i also like a few select games in general(yes i like nitro chiral games too shut up)
 
-so um some info! i really do NOT interact first but um if you have the confidence too im usually not busy! 
+so um some info! i/we really do NOT interact first but um if you have the confidence too im/we're usually not busy! 
 
-![KDSD-993](https://github.com/user-attachments/assets/171f05c7-b1ed-4398-924f-db73d763c203)
+![goldbullet-goldbullet-armis](https://github.com/user-attachments/assets/03cfa5d9-8ddb-4698-ba35-e55f23cc5489)
+
 
 flashing lights warning for the blinkies i have
 
 
 
-
+![56473410_PSY](https://github.com/user-attachments/assets/9d8c0134-4542-433a-804a-45cfa1ea6b9d)
+![una](https://github.com/user-attachments/assets/ccdcdc3f-0805-47c7-be51-b8916c4ed9c5)
+![april](https://github.com/user-attachments/assets/79d2b765-2ce4-47f5-90e8-c4820c181733)
+![keroppi2](https://github.com/user-attachments/assets/1778c9f6-6f36-4703-bed7-217c3417ce08)
+![evanescence](https://github.com/user-attachments/assets/8bf18919-778a-4619-9f89-35b815aa692d)
+![scrapblinkie_byus](https://github.com/user-attachments/assets/1c226528-ac96-4c1c-9f71-997653ee2e90)
+![renblinkie_byus](https://github.com/user-attachments/assets/62bdd2cd-3e10-4b33-917a-aee111a408dd)
+![avril-lavigne](https://github.com/user-attachments/assets/a0cfed3c-6f20-4c3b-8182-3bed6b336841)
+![say-moo](https://github.com/user-attachments/assets/557d5c82-683b-484a-bd3d-5f4dc225e0a9)
 ![0221-cd](https://github.com/user-attachments/assets/15ab085f-104a-49ff-adc9-37283597347c)
 ![0212-gradientblue](https://github.com/user-attachments/assets/dcc9ed10-fd4b-4199-9f3e-4d7314f9d750)
 ![0178-mikuwink2](https://github.com/user-attachments/assets/7d52b261-af84-414b-ba9f-b090fc2e8a34)
@@ -35,13 +45,11 @@ flashing lights warning for the blinkies i have
 ![e99](https://github.com/user-attachments/assets/8e1e5f18-dc91-4bf1-8586-3575ee6b6248)
 ![c15](https://github.com/user-attachments/assets/7a061949-bf5b-4894-a4f0-24741cb81514)
 ![e7](https://github.com/user-attachments/assets/e725f8a2-a6d9-4bb9-96ca-3a31fb6ce4a2)
-![0036-fire](https://github.com/user-attachments/assets/11ea711f-7e08-4033-b464-4c07b3e0bed0)
-![0129-splatoon3](https://github.com/user-attachments/assets/30f95f65-ad2e-4b46-ba0b-39e496dd64fd)
-![0097-purple](https://github.com/user-attachments/assets/9d1c975c-f12e-4b7e-89a9-853c8dcde837)
-![0167-saw](https://github.com/user-attachments/assets/f5d911f6-bda7-49b7-9303-0a92e2c7bdd1)
+
 ![0112-peep](https://github.com/user-attachments/assets/3c2c6039-3025-414a-8311-875cac0f9320)
 ![0023-trans-pride](https://github.com/user-attachments/assets/4865930e-d852-4e85-a6ef-f50271a4d93f)
-![0005-citystars](https://github.com/user-attachments/assets/fc5d50c0-33f0-4b81-834e-643f9bddf0f5)
+
 ⠀⠀ 
-⠀⠀⠀⠀
+
+⠀⠀⠀
 
