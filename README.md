@@ -3,7 +3,7 @@
 
 hyperdimensional neptunia, collar x malice, punch punch forever(nono kin) and fullmetal alchemist fan. i also like a few select games in general(yes i like nitro chiral games too shut up)
 
-so um some info! i/we really do NOT interact first but um if you have the confidence too im/we're usually not busy! 
+so um some info! i really do NOT interact first but um if you have the confidence too im usually not busy! 
 
 ![goldbullet-goldbullet-armis](https://github.com/user-attachments/assets/03cfa5d9-8ddb-4698-ba35-e55f23cc5489)
 
