@@ -1,5 +1,6 @@
-![46174f07bb4c061254eca05cc9563a21](https://github.com/user-attachments/assets/3387321c-51b8-4476-8f32-e60325d67a4d)
+![holostars-holotempus](https://github.com/user-attachments/assets/ba54c4f6-4400-431a-a4e8-180185f78d41)
 
+been both a koi and a bubby since day 1 i love holostars en
 
 hyperdimensional neptunia, collar x malice, punch punch forever(nono kin) and fullmetal alchemist fan. i also like a few select games in general(yes i like nitro chiral games too shut up)
 
