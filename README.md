@@ -2,10 +2,9 @@
 
 been both a koi and a bubby since day 1 i love holostars en
 
-hyperdimensional neptunia, collar x malice, punch punch forever(nono kin) and fullmetal alchemist fan. i also like a few select games in general(yes i like nitro chiral games too shut up)
+hyperdimensional neptunia fan etc when im on pt pls expect barely a reply i zone out a lot since ive been neglected my adhd meds
 
-so um some info! i really do NOT interact first but um if you have the confidence too im usually not busy! 
-
+so um some info! i really do NOT interact first but um if you have the confidence too go for it 
 ![goldbullet-goldbullet-armis](https://github.com/user-attachments/assets/03cfa5d9-8ddb-4698-ba35-e55f23cc5489)
 
 
