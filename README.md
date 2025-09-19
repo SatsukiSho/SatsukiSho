@@ -1,12 +1,13 @@
-![holostars-holotempus](https://github.com/user-attachments/assets/ba54c4f6-4400-431a-a4e8-180185f78d41)
+![special-week-uma-musume](https://github.com/user-attachments/assets/fed92537-c3c5-4486-97cf-984587b6ccee)
+
 
 been both a koi and a bubby since day 1 i love holostars en
 
 hyperdimensional neptunia fan etc when im on pt pls expect barely a reply i zone out a lot since ive been neglected my adhd meds
 
 so um some info! i really do NOT interact first but um if you have the confidence too go for it 
-![goldbullet-goldbullet-armis](https://github.com/user-attachments/assets/03cfa5d9-8ddb-4698-ba35-e55f23cc5489)
 
+![special-week-uma-musume (1)](https://github.com/user-attachments/assets/25bfad0c-c4fb-4a27-8239-a84482ae0c90)
 
 flashing lights warning for the blinkies i have
 
