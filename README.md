@@ -1,4 +1,4 @@
-![special-week-uma-musume](https://github.com/user-attachments/assets/fed92537-c3c5-4486-97cf-984587b6ccee)
+![meisho-doto-uma-musume](https://github.com/user-attachments/assets/362f14cc-e2e3-4e29-a779-534566bd33cf)
 
 
 been both a koi and a bubby since day 1 i love holostars en
@@ -7,7 +7,8 @@ hyperdimensional neptunia fan etc when im on pt pls expect barely a reply i zone
 
 so um some info! i really do NOT interact first but um if you have the confidence too go for it 
 
-![special-week-uma-musume (1)](https://github.com/user-attachments/assets/25bfad0c-c4fb-4a27-8239-a84482ae0c90)
+![fnaf-five-nights-at-freddy's](https://github.com/user-attachments/assets/c9988b9d-9170-4079-a042-e6fc1212fae4)
+
 
 flashing lights warning for the blinkies i have
 
