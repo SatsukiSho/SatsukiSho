@@ -1,4 +1,4 @@
-![meisho-doto-uma-musume](https://github.com/user-attachments/assets/362f14cc-e2e3-4e29-a779-534566bd33cf)
+![uma-musume-uma-musume-pretty-derby](https://github.com/user-attachments/assets/ab5e5efd-513d-4600-b87d-2eda8a8d86c6)
 
 
 been both a koi and a bubby since day 1 i love holostars en
@@ -7,7 +7,7 @@ hyperdimensional neptunia fan etc when im on pt pls expect barely a reply i zone
 
 so um some info! i really do NOT interact first but um if you have the confidence too go for it 
 
-![fnaf-five-nights-at-freddy's](https://github.com/user-attachments/assets/c9988b9d-9170-4079-a042-e6fc1212fae4)
+![give-me-back-my-face-fnaf-toy-bonnie-toy-freddy-fnaf](https://github.com/user-attachments/assets/2bd7aefa-320d-4421-b6c4-b7f8963435a7)
 
 
 flashing lights warning for the blinkies i have
