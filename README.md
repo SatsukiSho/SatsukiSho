@@ -1,4 +1,5 @@
-![13005540_b4e08](https://github.com/user-attachments/assets/164d36f1-06a0-48b4-9e2a-db03beaf67b1)
+![G2P8W5CagAA_Q-u](https://github.com/user-attachments/assets/3f7083a3-1642-487c-82e5-ce84f9f010de)
+
 
 
 been both a koi and a bubby since day 1 i love holostars en
