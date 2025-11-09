@@ -1,4 +1,5 @@
-![G2P8W5CagAA_Q-u](https://github.com/user-attachments/assets/3f7083a3-1642-487c-82e5-ce84f9f010de)
+![tumblr_17da4cdb2f175ba117872d50d84291e6_914d93ad_2048](https://github.com/user-attachments/assets/8c2e1ec9-c913-4d36-a7e1-e17ea0ccdeff)
+
 
 so um some info! i really do NOT interact first but um if you have the confidence too go for it 
 
