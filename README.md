@@ -1,4 +1,4 @@
-![tumblr_17da4cdb2f175ba117872d50d84291e6_914d93ad_2048](https://github.com/user-attachments/assets/8c2e1ec9-c913-4d36-a7e1-e17ea0ccdeff)
+![disney-twisted-wonderland-op](https://github.com/user-attachments/assets/2cd19775-72a2-4b93-b138-800043dc39fc)
 
 
 so um some info! i really do NOT interact first but um if you have the confidence too go for it 
