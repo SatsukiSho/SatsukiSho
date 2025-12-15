@@ -1,5 +1,6 @@
 ![disney-twisted-wonderland-op](https://github.com/user-attachments/assets/2cd19775-72a2-4b93-b138-800043dc39fc)
 
+I GET SCARED TO INT WHEN I THINK PEOPLE ARE RLLY COOL 😭
 
 so um some info! i really do NOT interact first but um if you have the confidence too go for it 
 
