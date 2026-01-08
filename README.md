@@ -1,11 +1,5 @@
-![disney-twisted-wonderland-op](https://github.com/user-attachments/assets/2cd19775-72a2-4b93-b138-800043dc39fc)
+<img width="736" height="736" alt="Leona Kingscholar _ 🥐✫･___･˙-Picsart-BackgroundRemover" src="https://github.com/user-attachments/assets/bead671a-a129-4a01-90f1-a01fde9582c3" />
+<img width="800" height="800" alt="Untitled Project-Picsart-BackgroundRemover" src="https://github.com/user-attachments/assets/5d91fddc-e1ca-4c2c-a4e2-3dda1fdd1ee8" />
 
-I GET SCARED TO INT WHEN I THINK PEOPLE ARE RLLY COOL 😭
-
-so um some info! i really do NOT interact first but um if you have the confidence too go for it 
-
- im learning russian too btw im not very good at reading it but i hope to get better!
-
-![give-me-back-my-face-fnaf-toy-bonnie-toy-freddy-fnaf](https://github.com/user-attachments/assets/2bd7aefa-320d-4421-b6c4-b7f8963435a7)
 
 
